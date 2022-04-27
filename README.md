@@ -1,0 +1,15 @@
+------------------------------------------------------------------------------------------------
+-  Hi, I’m @Toxitoss (Tox-E-Toss or  Tox-E-Tos)
+- I’m interested in games, art, design, and other stuff because why not?
+- I’m currently learning more advanced scripting and 3D modeling
+- I’m looking to collaborate on games, I'm a great designer, not that amazing at scripting yet lol
+- Reach me on discord, don't flood my DM's, and you'll have to ask me for them personally
+- Looking for a collab on smthn kinda maybe soon idk ¯\_(ツ)_/¯
+- ----------------------------------------------------------------------------------------------
+- こんにちは、私は@Toxitossです(トックス-E-トスまたはトックス-E-トス)
+- ゲーム、アート、デザインなどに興味があるのは、なぜですか?
+- 私は現在、より高度なスクリプトと3Dモデリングを学んでいます
+- 私はゲームでコラボレーションを探しています、私は素晴らしいデザイナーです、まだスクリプトでそれほど素晴らしいことではありません笑
+- 不和で私に連絡し、私のDMをあふれさせないでください、そして、あなたは個人的にそれらを私に尋ねなければならないでしょう
+- smthnちょっと多分すぐにidk ̄_(ツ)_/ ̄のコラボを探して
+- ----------------------------------------------------------------------------------------------
